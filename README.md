@@ -5,3 +5,5 @@
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### Você entrar em contato comigo 📫
+
+![](https://media1.tenor.com/m/CDW3UJnnfSkAAAAC/garfield-hi.gif)
